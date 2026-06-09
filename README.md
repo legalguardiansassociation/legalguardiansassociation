@@ -12,4 +12,4 @@ i'm fine with interacting with people 15+ just don't be weird please, i am sick 
 
 i'm on the aro spectrum & pda weirds me out a bunch, so please don't do it around me too much,,, it makes me severely uncomfortable :sob:
 
--- i guess kaito is stealing my github pls don't mind him he's nice i promise :sob:
+-- i guess kaito is using my github too pls don't mind him he's nice i promise :sob:
