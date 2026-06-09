@@ -11,3 +11,5 @@ i also ask people's ages before friend requests for personal comfort
 i'm fine with interacting with people 15+ just don't be weird please, i am sick of \*random kid*s approaching me all the damn time and saying the most outlandish shit to us
 
 i'm on the aro spectrum & pda weirds me out a bunch, so please don't do it around me too much,,, it makes me severely uncomfortable :sob:
+
+-- i guess kaito is stealing my github pls don't mind him he's nice i promise :sob:
