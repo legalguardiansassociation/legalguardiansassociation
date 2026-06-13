@@ -2,7 +2,7 @@ kusanagi nene / digitalvagrant
 
 did sys cohost / 18yrs bodily
 
--18 dnf, -15 + endo/willo/polymind "systems" DNI i'm so fucking serious.
+-18 dnf, -15 + endo/tulpas/willo/polymind "systems" DNI i'm so fucking serious.
 
 i block freely and DO check links. if i block you it's either because you're in my dni or i'm in yours
 
